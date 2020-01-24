@@ -42,4 +42,7 @@ Constructed in 1951 by Rich Nizams. It is well know for its beautiful structure 
 
 [Click for facts about charminar](https://en.wikipedia.org/wiki/Charminar#Structure)
 
+**Shoping**
+
+
 
