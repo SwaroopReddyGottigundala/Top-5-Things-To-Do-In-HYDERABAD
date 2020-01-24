@@ -32,7 +32,7 @@ Unlike other places in India, the hyderabadi chicken biriyani is a raw basmati r
 
 [Click here for history of biriyani](https://en.wikipedia.org/wiki/Hyderabadi_biryani)
 
-**Chariminar**
+## Chariminar
 
 Constructed in 1951 by Rich Nizams. It is well know for its beautiful structure which consists of four minarets.
 
@@ -42,7 +42,8 @@ Constructed in 1951 by Rich Nizams. It is well know for its beautiful structure 
 
 [Click for facts about charminar](https://en.wikipedia.org/wiki/Charminar#Structure)
 
-**Shoping**
+## Shoping
+
 Laad bazar or Choodi bazaar is a very old market popular for bangles which is located near charminar
 
  A typical bangle store in Choodi bazar
