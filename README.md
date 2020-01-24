@@ -43,6 +43,14 @@ Constructed in 1951 by Rich Nizams. It is well know for its beautiful structure 
 [Click for facts about charminar](https://en.wikipedia.org/wiki/Charminar#Structure)
 
 **Shoping**
+Laad bazar or Choodi bazaar is a very old market popular for bangles which is located near charminar
+
+ A typical bangle store in Choodi bazar
+ 
+ ![bangles](https://upload.wikimedia.org/wikipedia/commons/thumb/2/24/Laadbazar.jpg/800px-Laadbazar.jpg)
+ 
+ [Click here to know more about Choodi bazaar](https://en.wikipedia.org/wiki/Laad_Bazaar)
+ 
 
 
 
