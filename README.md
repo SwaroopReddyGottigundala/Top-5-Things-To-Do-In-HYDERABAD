@@ -20,9 +20,7 @@ Hyderabad is one of the top most rising city in india.
 
 Unlike other places in India, the hyderabadi chicken biriyani is a raw basmati rice and meat are cooked together with water,chicken and spices in an earthen pot, slowly and carefully.
 
-*Biriyani
-
-https://upload.wikimedia.org/wikipedia/commons/7/7c/Hyderabadi_Chicken_Biryani.jpg
+![biriyani](https://upload.wikimedia.org/wikipedia/commons/7/7c/Hyderabadi_Chicken_Biryani.jpg)
 
 (Image provided by(https://upload.wikimedia.org/wikipedia/commons/7/7c/Hyderabadi_Chicken_Biryani.jpg)
 
