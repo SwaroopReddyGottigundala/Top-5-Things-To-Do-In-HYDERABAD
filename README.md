@@ -40,7 +40,7 @@ Constructed in 1951 by Rich Nizams. It is well know for its beautiful structure 
 
 (Image provided by https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Charminar-Pride_of_Hyderabad.jpg/800px-Charminar-Pride_of_Hyderabad.jpg)
 
-[Click for facts about charminar](https://en.wikipedia.org/wiki/Charminar#Structure)
+[Click here to know more about charminar](https://en.wikipedia.org/wiki/Charminar#Structure)
 
 ## Shopping
 
