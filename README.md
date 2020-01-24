@@ -24,5 +24,12 @@ Unlike other places in India, the hyderabadi chicken biriyani is a raw basmati r
 
 (Image provided by(https://upload.wikimedia.org/wikipedia/commons/7/7c/Hyderabadi_Chicken_Biryani.jpg)
 
+** Ingrediants **
+
+- Basmati Rice
+- Chicken or Mutton
+- dahi, onions, bay leaves
+- Black cumin
+
 ![Click here for history of biriyani](https://en.wikipedia.org/wiki/Hyderabadi_biryani)
 
