@@ -52,8 +52,9 @@ Laad bazar or Choodi bazaar is a very old market popular for bangles which is lo
  
  [Click here to know more about Choodi bazaar](https://en.wikipedia.org/wiki/L)
  
- ## Ancient Forts
  
+## Ancient Forts
+
  1. Golconda
  
  2. Salar Jung Museum
@@ -68,8 +69,9 @@ Laad bazar or Choodi bazaar is a very old market popular for bangles which is lo
  
  [click here to know more about falaknuma palace](https://en.wikipedia.org/wiki/Falaknuma_Palace)
  
- ## Famous street foods in hyderabad
- 
+
+## Famous street foods in Hyderabad
+
  - Pani puri
  
  - Gokul chart
