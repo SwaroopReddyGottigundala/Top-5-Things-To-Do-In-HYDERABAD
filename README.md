@@ -50,7 +50,37 @@ Laad bazar or Choodi bazaar is a very old market popular for bangles which is lo
  
  ![bangles](https://upload.wikimedia.org/wikipedia/commons/thumb/2/24/Laadbazar.jpg/800px-Laadbazar.jpg)
  
- [Click here to know more about Choodi bazaar](https://en.wikipedia.org/wiki/Laad_Bazaar)
+ [Click here to know more about Choodi bazaar](https://en.wikipedia.org/wiki/L)
+ 
+ ## Ancient Forts
+ 
+ 1. Golconda
+ 
+ 2. Salar Jung Museum
+ 
+ 3. Birla temple
+ 
+ 4. Falaknuma palace
+ 
+ *falaknuma palace*
+ 
+ ![falaknuma](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Falaknuma_Palace_01.jpg/1920px-Falaknuma_Palace_01.jpg)
+ 
+ [click here to know more about falaknuma palace](https://en.wikipedia.org/wiki/Falaknuma_Palace)
+ 
+ ## Famous street foods in hyderabad
+ 
+ - Pani puri
+ 
+ - Gokul chart
+ 
+ - Ramki Bandi
+ 
+ - Irani chai
+ 
+
+ 
+ 
  
 
 
